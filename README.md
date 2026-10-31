@@ -1,1 +1,1 @@
-simple html script
+its a jumpscare
